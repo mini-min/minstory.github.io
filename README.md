@@ -1,1 +1,0 @@
-# minstory.github.io
